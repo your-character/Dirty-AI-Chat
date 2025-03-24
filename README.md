@@ -2,7 +2,7 @@
 
 Engage with cutting-edge Dirty AI chatbots designed for bold, unfiltered conversations. Whether you're into dirty talking AI or just looking for a fun, explicit chat, these bots provide an interactive and immersive experience, tailored to your desires.
 
-<a href="https://golove.ai/dirty-ai">Start your Dirty AI Chat Now!!</a>
+<a href="https://golove.ai/?ref=gh-golove-ai">Start your Dirty AI Chat Now!!</a>
 
 <h2>What is Dirty AI?</h2>
 Dirty AI is a virtual chatbot designed to engage in explicit, adult-themed conversations. With advanced Dirty AI Chat capabilities, these bots offer an unfiltered and exciting way to interact. Whether you're interested in dirty AI chats or exploring new boundaries, these chatbots are designed to deliver.
@@ -27,7 +27,7 @@ Learn the art of dirty talk with AI by selecting the right platform. Whether you
 
 With the right settings, you can customize your Character AI to engage in dirty AI chats. Adjust preferences and choose the characters that support adult-themed conversations for a thrilling experience.
 
-<a href="https://golove.ai/dirty-ai">Start your Dirty AI Chat Now!!</a>
+<a href="https://golove.ai/?ref=gh-golove-ai">Start your Dirty AI Chat Now!!</a>
 
 <h2>What is the Best Dirty AI Chatbot?</h2>
 
@@ -45,7 +45,7 @@ Get started with Free Dirty Talk AI by choosing a platform that offers free acce
 
 Sign up now and explore the boundaries of conversation with a dirty AI bot. Whether you’re looking for casual fun or intimate chats, your perfect AI Dirty Talker is waiting to engage with you.
 
-<a href="https://golove.ai/dirty-ai">Start your Dirty AI Chat Now!!</a>
+<a href="https://golove.ai/?ref=gh-golove-ai">Start your Dirty AI Chat Now!!</a>
 
 <h2>FAQ (Frequently Asked Questions):</h2>
 
